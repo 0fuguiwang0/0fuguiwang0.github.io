@@ -1,2 +1,2 @@
-# 0fuguiwang0.github.io
+# NiuBiJack
 个人网站
